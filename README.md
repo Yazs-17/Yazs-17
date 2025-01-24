@@ -1,7 +1,7 @@
      Your Smile 
      Your Touch
 I took the one less traveled by,
-And that will make all the difference.
+and that will make all the difference.
 
      
 - 👋 Hi, I’m Yazs
